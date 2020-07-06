@@ -1,2 +1,0 @@
-# basyakue.github.io
-ホームページ
